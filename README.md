@@ -88,7 +88,7 @@ Effective sales marketing involves a delicate balance between creativity and ana
 # Created By
 [@AmanMahato08] (https://github.com/AmanMahato08)
 
-Amon Kr. Mahato - ***DATA ANALYTST**
+Amon Kr. Mahato - ***DATA ANALYST**
 
 
 
